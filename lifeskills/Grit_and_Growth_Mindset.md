@@ -1,3 +1,6 @@
+##### Grit And Growth Mindset
+
+
 ### Question 1: Paraphrase (summarize) the video in a few (1 or 2) lines. Use your own words.
 
 https://www.youtube.com/watch?v=H14bBuluwB8
