@@ -30,7 +30,7 @@ Trust in your potential to improve
 Treat mistakes as learning opportunities
 Set clear and achievable targets
 
-Question 5: What are your ideas to take action and build Growth Mindset?
+### Question 5: What are your ideas to take action and build Growth Mindset?
 
 
 Have confidence in my abilities
